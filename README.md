@@ -1,2 +1,4 @@
-# .github
-Uhhhhhhh we are cool ppl 8)
+# Kek-Enterprise
+
+Give us money and we wont make your Software 😎
+
