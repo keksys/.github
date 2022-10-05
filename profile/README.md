@@ -1,3 +1,4 @@
 # Hey there traveler 👋
 
-Our current goal is not to die :)
+Cringe af ngl
+@y-rajot u very cringe
